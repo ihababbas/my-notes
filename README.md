@@ -5,7 +5,7 @@
 
   **I am here** looking for solid ground and to be the start point to my career path.
 
-## _Hope I will learn form you all good things and making a good friendship._
+## _Hope I will learn form you all good things and making a good friendship. and have fun_
 
 ![my image](/81321942_10215766624094759_4226478712410865664_n.jpg)
 
